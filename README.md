@@ -1,0 +1,1 @@
+# Lenovo-Yoga910-Hacintosh-Mojave10.14
